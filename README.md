@@ -1,3 +1,2 @@
-- 👋 Hi, I’m @David-DC-Cordes
-
+- 👋 Hi, I’m David Cordes!
 
